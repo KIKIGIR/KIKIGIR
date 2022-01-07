@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @KIKIGIR
+- 👀 I’m interested in Animals and tech!
